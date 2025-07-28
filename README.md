@@ -7,4 +7,4 @@
 
 🎯 First-year undergraduate pursuing a Bachelor's of Computer Applications at Parul University
 
-📫 Let's connect: LinkedIn (https://www.linkedin.com/in/gaurav-sanodiya/) 
+📫 Let's connect: [LinkedIn](https://www.linkedin.com/in/gaurav-sanodiya/) 
